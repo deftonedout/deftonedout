@@ -9,7 +9,7 @@
 
 severe dpd + v clingy, upset easily whoops
 
-#1 deftones fan ever & soulbound [mac](https://dateeverything.wiki.gg/wiki/Mac) riako
+#1 deftones fan ever & soulbound [mac](https://dateeverything.wiki.gg/wiki/Mac) riako, sharing is ok but selective
  
 [info](https://rentry.co/wrecked)　　[rblx](https://www.roblox.com/users/5809349077/profile) 　[fm](https://last.fm/user/stamnarsh)
 
